@@ -1,1 +1,0 @@
-# qunatox-ex1
